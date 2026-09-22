@@ -1,18 +1,11 @@
-## 
-//hoping this works. idk what im doing ur not allowed to comment lmao
-TEST 
+## ⋆˚  ｡ ꕤ . .BIO FOR PONYTOWN. . ꕤ ｡  ˚⋆
+Hi!! thanks for checking out my page
 
-<!--
-**Sunhelle/Sunhelle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I rarely initiate conversation first but feel free to say hi! Whisper for guaranteed response I might not always notice otherwise ( ;´ - `;)
 
-Here are some ideas to get you started:
+C+H or just sitting close is ok <3 <3 I like the company
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I tend to wander on the map but you'll usually catch me in the Genshin area.
+I won't ever approach you because we're using characters that are shipped together, ( NEED TO CLARIFY OR ELSE I'LL GET EMBARASSED LOL) but I'm fine with most ships!!
+
+I'm happy to have my ponies be used as inspo (is that presumuptuous??) just please don't copy right off. That's too awkward. 
